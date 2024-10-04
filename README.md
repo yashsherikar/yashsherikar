@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning **MAC**
 
 
-- 📫 How to reach me **yashsherikar1820@gmail.com**
+- 📫 How to reach me **yashsherikar1821@gmail.com**
 
 - ⚡ Fun fact **I Think I Am Funny😅**
 
