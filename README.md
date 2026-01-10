@@ -5,12 +5,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=yashsherikar&label=Profile%20views&color=0e75b6&style=flat" alt="yashsherikar" /> </p>
 
-- 🌱 I’m currently learning **MAC**
+- 🌱 I’m currently doing **freelance**
 
 
 - 📫 How to reach me **yashsherikar1821@gmail.com**
 
-- ⚡ Fun fact **I Think I Am Funny😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
